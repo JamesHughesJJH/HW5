@@ -1,1 +1,0 @@
-James Hughes - Chicago Cubs
